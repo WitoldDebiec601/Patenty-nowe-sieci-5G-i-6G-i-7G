@@ -1,0 +1,1 @@
+# Patenty-nowe-sieci-5G-i-6G-i-7G
